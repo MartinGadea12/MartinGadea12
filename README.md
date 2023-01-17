@@ -7,7 +7,7 @@
 
 - 📫 como contactarte conmigo **martiingadeea1996@gmail.com**
 
-- 📄 Conoce mis experiencias Actualmente graduado en Henry, una experiencia única para mi, después de tanto esfuerzo puedo decir que soy Full Stack Developer! Empeze Henry sin saber nada de programación, y es increíble las cosas que aprendí en estos intensos meses. Estoy con muchas ganas de seguir aprendiendo, y encontrar mi primer trabajo como desarrollador](Actualmente graduado en Henry, una experiencia única para mi, después de tanto esfuerzo puedo decir que soy Full Stack Developer! Empeze Henry sin saber nada de programación, y es increíble las cosas que aprendí en estos intensos meses. Estoy con muchas ganas de seguir aprendiendo, y encontrar mi primer trabajo como desarrollador
+- 📄 Conoce mis experiencias: Actualmente graduado en Henry, una experiencia única para mi, después de tanto esfuerzo puedo decir que soy Full Stack Developer! Empeze Henry sin saber nada de programación, y es increíble las cosas que aprendí en estos intensos meses. Estoy con muchas ganas de seguir aprendiendo, y encontrar mi primer trabajo como desarrollador](Actualmente graduado en Henry, una experiencia única para mi, después de tanto esfuerzo puedo decir que soy Full Stack Developer! Empeze Henry sin saber nada de programación, y es increíble las cosas que aprendí en estos intensos meses. Estoy con muchas ganas de seguir aprendiendo, y encontrar mi primer trabajo como desarrollador
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
